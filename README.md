@@ -1,2 +1,3 @@
 # IDEABOARD
-jus another repository, ideas will be attempted.
+# jus another repository, ideas will be attempted.
+# whattup whattup - Omar here, looking to change the world somehow. yeah i know, cliche. but i truly want to find the place where I best fit in order to impact society positively. looking to ignite a spiritual path in others that I'm currently searching for...
